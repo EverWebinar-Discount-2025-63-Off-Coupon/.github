@@ -1,4 +1,4 @@
-# EverWebinar Discount April 2025: Up to 63% Off Verified Coupon
+## EverWebinar Discount April 2025: Up to 63% Off Verified Coupon
 
 Looking for a real EverWebinar discount? You’re in the right place!
 
